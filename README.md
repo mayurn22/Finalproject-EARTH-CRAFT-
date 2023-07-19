@@ -1,2 +1,2 @@
-# Mayur-shruti
+# Mayur-Shruti
 earth craft
